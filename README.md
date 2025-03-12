@@ -1,2 +1,3 @@
-# Celerity-V2
-Celerity Hub Reborn?
+# Celerity V2.0
+-Just made the ui lol what else you expect??
+# Ambakutam🔥
